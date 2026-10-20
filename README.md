@@ -1,5 +1,1 @@
-# pythonhork
-# pythonhork
-# pythonhork
-# pythonhork
-# pythonhork
+รัฐนนท์ คำผาย รหัส6912732117
